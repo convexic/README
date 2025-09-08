@@ -3,7 +3,7 @@
 ## ★ KRIS ? SCAR ᶻ 𝗓 𐰁
 22+, he/they pronouns!
 
-usually sat for whatever hyperfixation i'm on :D
+usually sat as for whatever hyperfixation i'm on :D
 
 ### please note
 i am usually sat with friends, typically i won't react to others. though, you are free to sit by me if there is no one occupying and you are free to interact :D there's no guarantee i will  reply most of the time — so typically whispering to interact is the way to go
